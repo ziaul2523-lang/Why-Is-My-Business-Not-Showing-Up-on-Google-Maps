@@ -1,0 +1,2 @@
+# Why-Is-My-Business-Not-Showing-Up-on-Google-Maps
+You’ve verified your Google Business Profile. You’ve added photos. You’ve filled out every single field.  But when you search for your business on Google Maps, nothing shows up.. Meanwhile, your competitors are right there on the map. Getting calls. Getting customers. Getting all the business that should be coming to you. This isn’t a waiting game.
